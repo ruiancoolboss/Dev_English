@@ -5,3 +5,5 @@ To learn English in Dev
 
 微信想要加群可以加我，目前人少就不放二维码了
 微信： oye-2004
+
+![图片](https://github.com/ruiancoolboss/Dev_English/assets/22367623/685b02b7-54a8-421a-8011-0f4023b669f5)
